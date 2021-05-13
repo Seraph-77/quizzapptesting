@@ -1,2 +1,2 @@
 # Quizzapptesting
-followed a tutorial. not completely original
+by far the stupidest idea ever had
